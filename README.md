@@ -1,2 +1,2 @@
-# Bu-ra-
-Kasar bugra mevlut kasarrrrrr
+BUĞRA MEVLÜT KASAR 
+FEN BİLİMLERİ 
